@@ -4,9 +4,9 @@ URL: zifangzhao.info
 
 ### Contact information
 
-Department of Electrical Engineering, Columbia University
+Department of Neurobiology & Behavior, Cornell University
 
-500W 120th street Mudd 1324, New York, NY, 10025
+W361, 215 Tower Rd, Ithaca, NY 14853
 
 [zz2636@columbia.edu](mailto:zz2636@columbia.edu)
 
