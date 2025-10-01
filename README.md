@@ -8,7 +8,7 @@ Department of Neurobiology & Behavior, Cornell University
 
 W361, 215 Tower Rd, Ithaca, NY 14853
 
-[zz2636@columbia.edu](mailto:zz2636@columbia.edu)
+[zz833@columbia.edu](mailto:zz833@cornell.edu)
 
 ### About myself
 
